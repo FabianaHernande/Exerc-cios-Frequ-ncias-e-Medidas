@@ -1,0 +1,1 @@
+# Exerc-cios-Frequ-ncias-e-Medidas
